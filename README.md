@@ -1,0 +1,4 @@
+- 👋 Ola, sou @Banaszeski
+- 👀 Estou interessado em programação!
+- 🌱 Sempre aprendendo
+- 💞️ Estudante do Professor Ricardo <3
